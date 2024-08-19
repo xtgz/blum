@@ -55,6 +55,9 @@ Join Tribe to Earn Faster : [Blum](https://t.me/BlumCryptoBot/app?startapp=tribe
 
 #Note
 ```recomended to run this script with screen```
+
 Join for more Airdrop and update : https://t.me/Nftihunter
+
 Register : [Blum](https://t.me/BlumCryptoBot/app?startapp=ref_OkMMgHB7nE)
+
 Join Tribe to Earn Faster : [Blum](https://t.me/BlumCryptoBot/app?startapp=tribe_alloffmovie-ref_OkMMgHB7nE)
