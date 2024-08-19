@@ -1,7 +1,9 @@
 # Blum AutoBot
 
 Join for more Airdrop and update : https://t.me/Nftihunter
+
 Register : [Blum](https://t.me/BlumCryptoBot/app?startapp=ref_OkMMgHB7nE)
+
 Join Tribe to Earn Faster : [Blum](https://t.me/BlumCryptoBot/app?startapp=tribe_alloffmovie-ref_OkMMgHB7nE)
 
 ## Requirements
